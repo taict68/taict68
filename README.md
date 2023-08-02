@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @taict68
 - 👀 I’m interested in web3
 - 🌱 I’m currently learning code, and crypto.
-- 💞️ I’m looking to collaborate on a crypto project with role Ambassador
+- 💞️ My telegram group https://t.me/vnairdropshunter for information airdrop alpha.
 - 📫 contact me at: http://link3.to/taict1234567
 
 <!---
