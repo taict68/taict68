@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @taict68
-- 👀 I’m interested in web3
+- 👀 I’m holder BTC.
 - 🌱 I’m currently learning code, and crypto.
 - 💞️ My telegram group https://t.me/vnairdropshunter for information airdrop alpha.
 - 📫 contact me at: http://link3.to/taict1234567
