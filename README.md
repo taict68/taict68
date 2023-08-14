@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @taict68
+- 👋 Hi, I’m QTee
 - 👀 I’m holder BTC.
 - 🌱 I’m currently learning code, and crypto.
 - 💞️ My telegram group https://t.me/vnairdropshunter for information airdrop alpha.
