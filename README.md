@@ -1,5 +1,5 @@
 - 👋 Hi, I’m QTee
-- 👀 I’m holder BTC.
+- 👀 I’m holder BTC, Research airdrop.
 - 🌱 I’m currently learning code, and crypto.
 - 💞️ My telegram group https://t.me/vnairdropshunter for information airdrop alpha.
 - 📫 contact me at: http://link3.to/taict1234567
