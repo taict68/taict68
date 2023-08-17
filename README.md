@@ -1,4 +1,4 @@
-- 👋 Hi, I’m QTee
+- 👋 Hi, I’m QTee.
 - 👀 I’m holder BTC, Research airdrop.
 - 🌱 I’m currently learning code, and crypto.
 - 💞️ My telegram group https://t.me/vnairdropshunter for information airdrop alpha.
@@ -7,5 +7,5 @@
 <!---
 taict68/taict68 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
----> Regard
+---> Regard..
 great day
