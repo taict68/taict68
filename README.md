@@ -1,4 +1,4 @@
-- 👋 Hi, I’m VoVi.
+- 👋 Hi, I’m QTee.
 - 👀 I’m holder BTC, Research airdrop.
 - 🌱 I’m currently learning code, and crypto.
 - 💞️ My telegram group https://t.me/QTeeAirdrop for information airdrop alpha.
