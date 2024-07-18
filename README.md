@@ -1,5 +1,5 @@
 - 👋 Hi, I’m QTee.
-- 👀 I’m content creator, Research about crypto
+- 👀 I’m gamer, holder and creator about gamefi.
 - 🌱 I’m currently learning code, and crypto 
 - 💞️ My telegram group https://t.me/QTeeAirdrop for information airdrop alpha
 - 📫 farcaster: https://warpcast.com/taict.eth
