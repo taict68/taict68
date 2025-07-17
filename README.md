@@ -1,5 +1,6 @@
 - 👋 Hi, I’m QTee.
-- 👀 I’m gamer, holder and creator, streamer on Abstract.
+- 👀 I’m creator, gamer on Abstract.
+- My X: https://x.com/QTee99
 - 🌱Link stream: https://portal.abs.xyz/stream/QTee99 
 - 💞️ My telegram group https://t.me/QTeeAirdrop for information airdrop alpha
 - 📫 farcaster: https://warpcast.com/taict.eth
