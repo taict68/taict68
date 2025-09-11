@@ -6,4 +6,3 @@
 - 📫 farcaster: https://warpcast.com/taict.eth n
 - All project on Abstract to get XP: https://t.me/QTeeAirdrop/4457 .
 
-.
